@@ -1,0 +1,2 @@
+# fitnessquickfix.com
+affiliate marketing 
